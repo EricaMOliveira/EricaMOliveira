@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @EricaMOliveira
-- 👀 I'm interested in learning new challenges
+- 👀 I'm interested in acquiring new knowledge
 - 🌱 I'm currently learning English and software developer
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
